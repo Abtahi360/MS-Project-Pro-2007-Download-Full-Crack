@@ -13,8 +13,6 @@
    ```
 
 3. **Choose Installation Path**
-   Example: `C:\Program Files\MATLAB\R2023b`
-
 4. **Add Shortcut**
    Select the option **"Add shortcut to desktop"**.
 
